@@ -40,4 +40,4 @@ Is Truth.
 I summon Truth as a source of strength.
 To be a voice of refuge in my universe of lies.
 
- (Veritism)[https://github.com/ki4jgt/Veritism] (C) 2024 by Jesse Cox is licensed under (CC BY 4.0)[https://creativecommons.org/licenses/by/4.0/]
+ [Veritism](https://github.com/ki4jgt/Veritism) (C) 2024 by Jesse Cox is licensed under [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/)
