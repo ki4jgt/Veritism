@@ -22,7 +22,11 @@ Further, Truth is both infinitely receptive and infinitely assertive. In as much
 
 It builds up to its highest self by the convergence of its smallest selves, all parts pre-existing before their own conception. All stations integral to the formation of the whole. And the whole indebted to all the stations below it. Neither can exist without the other. All, the individual parts and the combined whole, is Truth.
 
+If you kick a man while he's down, you remove his experience from your collective. If he is an artist, you remove your own inspiration. If he is a butcher, you remove your own meat. You cannot build a house without cutting down trees and taking housing from animals. Every action has an equal and opposite reaction. Every action occurs at every point in space, time, and dimension. And so does every reaction. Your actions are just as infinite as you are.
+
 Conceptually, I support the notion that Truth is all-knowing, in that emptiness has mechanical applications. Cogs and guns have no use without emptiness. Neither do keyboards. A footprint in the sand is empty. To create a cast, one need only pour in a mold. The forces we exert in reality create mechanical counter-forces. Leading to mirror worlds at every single point of Truth. These worlds are all around us, and we move in and out of them at will, when Schrodinger's box opens.
+
+I see time as a way to spread out the infinite potentials within every thing. A freshly printed book isn't worth of human life. But a single-print 2,000-year-old manuscript would have several academics running in to save it. Time is present to keep infinities from bumping into each other. Time obscures potential from us all.
 
 ## The Eternal Truth
 The parts are no greater than the sum.
