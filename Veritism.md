@@ -25,19 +25,19 @@ It builds up to its highest self by the convergence of its smallest selves, all 
 Conceptually, I support the notion that Truth is all-knowing, in that emptiness has mechanical applications. Cogs and guns have no use without emptiness. Neither do keyboards. A footprint in the sand is empty. To create a cast, one need only pour in a mold. The forces we exert in reality create mechanical counter-forces. Leading to mirror worlds at every single point of Truth. These worlds are all around us, and we move in and out of them at will, when Schrodinger's box opens.
 
 ## The Eternal Truth
-The parts are no greater than the sum.
-The sum is no greater than its parts.
-All things are equal, when,
-For every action,
-There is an equal and opposite reaction.
-
-Dimensions unfold.
-Potential untold.
-When in the reflection of Truth.
-Is Truth.
+> The parts are no greater than the sum.
+> The sum is no greater than its parts.
+> All things are equal, when,
+> For every action,
+> There is an equal and opposite reaction.
+>
+> Dimensions unfold.
+> Potential untold.
+> When in the reflection of Truth.
+> Is Truth.
 
 ## Remembering Who You Are
-I summon Truth as a source of strength.
-To be a voice of refuge in my universe of lies.
+> I summon Truth as a source of strength.
+> To be a voice of refuge in my universe of lies.
 
  [Veritism](https://github.com/ki4jgt/Veritism) (C) 2024 by Jesse Cox is licensed under [CC BY 4.0](https://creativecommons.org/licenses/by/4.0/)
