@@ -26,7 +26,7 @@ If you kick a man while he's down, you remove his experience from your collectiv
 
 Conceptually, I support the notion that Truth is all-knowing, in that emptiness has mechanical applications. Cogs and guns have no use without emptiness. Neither do keyboards. A footprint in the sand is empty. To create a cast, one need only pour in a mold. The forces we exert in reality create mechanical counter-forces. Leading to mirror worlds at every single point of Truth. These worlds are all around us, and we move in and out of them at will, when Schrodinger's box opens.
 
-I see time as a way to spread out the infinite potentials within every thing. A freshly printed book isn't worth of human life. But a single-print 2,000-year-old manuscript would have several academics running in to save it. Time is present to keep infinities from bumping into each other. Time obscures potential from us all.
+I see time as a way to spread out the infinite potentials within every thing. A freshly printed book isn't worthy of a human life. But a single-print 2,000-year-old manuscript would have several academics running into a burning building to save it. Time is present to keep infinities from bumping into each other. Time obscures and unites potential.
 
 ## The Eternal Truth
 The parts are no greater than the sum.
